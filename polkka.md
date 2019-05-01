@@ -1,4 +1,4 @@
-[200~Nuapurista kuulu se polokan tahti
+Nuapurista kuulu se polokan tahti
 Jalakani pohjii kutkutti
 Ievan äiti se tyttöösä vahti
 Vaan kyllähän Ieva sen jutkutti,
